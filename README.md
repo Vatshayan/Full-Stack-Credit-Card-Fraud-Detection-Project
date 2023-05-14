@@ -31,7 +31,7 @@ Email me Now **vatshayan007@gmail.com** to get this Full Project Code, PPT, Repo
 
 ### 1000 Computer Science Projects : https://www.computer-science-project.in/
 
-### Youtube Explanation : https://youtu.be/RvvYV73JWqg
+### Youtube Video : https://youtu.be/oXxX0bfVgq8
 
 Mail/Message me for Projects Help 🙏🏻
 
